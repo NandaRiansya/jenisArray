@@ -1,0 +1,2 @@
+# jenisArray
+tidak tahu
